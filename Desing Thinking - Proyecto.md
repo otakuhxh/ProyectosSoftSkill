@@ -21,9 +21,16 @@
 ![21](https://github.com/user-attachments/assets/f281cd9b-7ed6-4f0c-949c-0be2e2ff8648)
 ![22](https://github.com/user-attachments/assets/98472e07-e42b-4467-b864-789d16009059)
 
+Proyecto en figma:
+![1-1](https://github.com/user-attachments/assets/d2bfd709-aa12-4349-8f2c-a6f331b83973)
+![1-2](https://github.com/user-attachments/assets/4870fb63-468f-4f98-a2df-0d8d6857be1a)
+![1-3](https://github.com/user-attachments/assets/6019c9f5-1017-4512-aa6d-7f3f29b0ccfe)
 
+Diapositivas De Presentación
+[Trabajo Final.pdf](https://github.com/user-attachments/files/16924032/Trabajo.Final.pdf)
 
-
+Presentación
+https://drive.google.com/file/d/1xVpzgfIIwcGK5lFGhWeNPAWTNwde_2Jk/view?usp=sharing
 
 
 
